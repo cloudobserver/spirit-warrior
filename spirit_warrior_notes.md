@@ -41,24 +41,24 @@ We are multi-dimensional beings. We live in physical bodies in a physical world.
 
 So we live in two worlds at once. In the physical world, the soul is incarnated in a body and is completely identified with the body. The soul consists of God consciousness and somehow this consciousness is confined to a body. On this earth, the soul is focused on staying alive and accomplishing various things. The soul experiences an endless series of problems, activities, and thoughts. Important stuff. People may die.
 
-Simultaneously the soul is pure consciousness that is perfect and complete. You can experience this in meditation. There is pure blissful awareness inside you that is beyond this world, in which you know there are no problems anywhere. Everything is perfect as it is. 
+Simultaneously the soul is pure consciousness that is perfect and complete. You can experience this in meditation. There is pure blissful awareness inside you that is beyond this world, in which you know there are no problems anywhere. Everything is perfect as it is.
 
 How can these conflicting realities both be true?
 
-| Physical World  | Spirit World |
-| ------------- | ------------- |
-| Temporary  |  Eternal |
-| Logical  |  Unexplainable |
-| Good/bad  |  All good |
-| Unsatisfying  |  Blissful |
-| At risk  | Invincible |
-| Separation  | Oneness |
-| Limitations/scarcity  |  Complete security |
-| Action & Doing  |  Pure witness & Not doing |
-| There are many  |  There is only one |
-| Hatred has power  |  Love is the only power |
-| Narrow consciousness  |  All-knowing consciousness |
-| Problems everywhere  |  Perfection that includes all imperfection |
+| Physical World | Spirit World |
+| -------------- | ------------ |
+| Temporary | Eternal |
+| Logical | Unexplainable |
+| Good/bad | All good |
+| Unsatisfying | Blissful |
+| At risk | Invincible |
+| Separation | Oneness |
+| Limitations/scarcity | Complete security |
+| Action & Doing | Pure witness & Not doing |
+| There are many | There is only one |
+| Hatred has power | Love is the only power |
+| Narrow consciousness | All-knowing consciousness |
+| Problems everywhere | Perfection that includes all imperfection |
 
 There is a fundamental problem with translating wisdom from the invincible dimension to the material dimension. The wisdom is true but it doesn’t solve the problems of the material dimension. Native cultures and ancient cultures have ways and tools for dealing with these contradictions. These can be helpful to a point. But there is no substitute for direct investigation on your own. I present the following thoughts and opinions for your consideration. Please sort out and discard the ones that don't work for you. And the ones you like, keep 'em.
 
@@ -78,13 +78,14 @@ Like a hero from an ancient myth, you're on a mission to find this treasure. You
 
 ### Are you in control of your thoughts?
 
-The world is rich with diverse cultures. Every culture has shared beliefs and understandings that allow the society to function and survive. Every culture imposes beliefs and expects certain behaviors. But beliefs are human inventions. They give a structure to reality. But reality is more complicated than the structure. The beliefs solve problems while also creating other problems.
+The world is rich with diverse cultures. Every culture has shared beliefs and understandings that allow the society to function and survive. Every culture imposes beliefs and expects certain behaviors. But beliefs are human inventions. They give a structure to reality. But reality is more complex and nuanced than the structure. The beliefs solve problems while also creating other problems.
 
-Any culture seems valid and true from the inside, but looks a little crazy from some other cultural perspective. There is no set of beliefs that is the final and correct version of reality. There is no unbiased authority to evaluate cultural systems, because every person is a product of a particular culture, and is therefore biased. So it is up to the individual to sort out truth from untruth.
-Cultural norms are passed on to children. The child absorbs information like a sponge and imitates whoever is around, mostly family members. Gradually the child learns all the social and cultural conventions. Over decades, the child becomes dominated by social pressures that dictate behavior. The original joy and spontaneity of childhood gets lost along the way. The child, now grown up, thinks and lives according to external authorities, fighting battles that were set up by someone else.
+Any culture seems valid and true from the inside, but may look a little crazy from another cultural perspective. There is no set of beliefs that is the final and correct version of reality. There is no unbiased authority to evaluate cultural systems, because every person is a product of a particular culture, and is therefore biased. So it is up to the individual to sort out truth from untruth.
+
+Cultural norms are passed on from generation to generation. The child absorbs information like a sponge and imitates whoever is around, mostly family members. Gradually the child learns all the social and cultural conventions. Over decades, the child becomes dominated by social pressures that dictate behavior. The original joy and spontaneity of childhood gets lost along the way. The child, now grown up, thinks and lives according to external authorities, fighting battles that were set up by someone else.
 Is that you? Are you trapped by cultural rules and the expectations of family and friends?
 
-Assume for a moment that there is an ideal society that has the best possible beliefs. Sounds good. However those who grow up in such a society are still following behavior dictated by an outside authority. A prison made of gold is still a prison. 
+Assume for a moment that there is an ideal society that has the best possible beliefs. Sounds good. However those who grow up in such a society are still following behavior dictated by an outside authority. A prison made of gold is still a prison.
 There is no substitute for direct experience. Seek out the truth for yourself. It is not enough for someone to tell you what is important and what to do. This life is not supposed to be a guided tour. Don't accept any belief unless you find it to be true in your experience.
 
 ### Change thought patterns and beliefs
@@ -93,21 +94,21 @@ Observe your thoughts and behavior.  Look for beliefs habitual thoughts. Do you
 
 For every belief, ask yourself, "Does this belief serve me? Does it make me feel joyous?"
 
-Especially look for beliefs about personal identity. Don't become identified with your part in the drama. Whatever roles you play in this life are temporary. If you cling to them, you will suffer. What aspects of your life are you most proud of and attached to? What things are part of your identity? Your self concept, your idea of who you are, your ego identity is a trap. Remember the other dimensions of yourself - a wondrous being of light, one with the universal mind.
+Especially look for beliefs about personal identity. Don't become identified with your part in the drama. Whatever roles you play in this life are temporary. If you cling to them, you will suffer. What aspects of your life are you most proud of and attached to? What things are part of your identity? Your self concept, your idea of who you are, your ego identity is a trap. Remember the other dimensions of yourself - a wondrous being of light, united with the universal mind.
 
 Don't identify with your body. The body is graceful and stunning in the vigor of youth, and yet it is destined to break down and die. It is like a set of clothes that will be discarded after some time. Don't cling to it.
 
 If a belief doesn't serve you, change it. Break out. Do things that change yourself image, that break up your identity. Be creative. Be adventurous. If you're always loud, try being silent, or vice versa.
-Steer your mind away from negative story lines. Focus on higher thoughts. Try to fill your mind only with divine thoughts. Avoid negative influences, such as less-uplifting environments and people.
 
-Through sustained effort, you can reduce the amount of negative beliefs and thoughts. Make a game of it: Put a star for each day you avoid negative influences, such as entertainment media.
-If you need a role model for joyous living, observe children; they are the best for that. Their words and actions are always real and refreshing.
+Steer your mind away from negative story lines. Focus on higher thoughts. Try to fill your mind only with divine thoughts. Through sustained effort, you can reduce negative beliefs and thoughts. Make a game of it: Put a star for each day you avoid negative influences, such as addictions to media or anything.
+
+Avoid negative influences, such as less-uplifting environments and people. If you need a role model for joyous living, observe children; they are the best for that. Their words and actions are always real and refreshing.
 
 ### Be aware of bio-programming
 
 Biological programming consists of deeply-engrained thought patterns and emotions that drive human survival and reproduction. These are interwoven with cultural programming but are even deeper.
 Take for example sexual attraction. We have a strong tendency to evaluate members of the opposite sex. These judgemental thoughts prevent one from seeing the beauty and wonder of each individual.
-Recognize when lust and other biological impulses are driving your thoughts and actions. Challenge these thoughts. If you decide to keep them, fine. Let it be your conscious choice. And observe if your choices bring happiness.
+Recognize when lust and other biological impulses are driving your thoughts and actions. Challenge these thoughts. If you decide to keep them, fine. Let it be your conscious choice. And observe if this choice brings happiness.
 
 ### Live in the moment
 
@@ -116,10 +117,10 @@ If you need an example, look to the world's foremost authorities on joyous livin
 
 ### Listen for inner guidance
 
-There are nonphysical beings who can help you access divine intelligence. Maybe these beings are part of your higher self. It's totally mysterious. They may take the form of archangels, animal spirits, ascended masters such as Christ, whatever.
+There are nonphysical beings who can help you access divine intelligence. Maybe these beings are part of your higher self. Some may say these forces are all in your mind,  "imaginary". It's totally mysterious. You can think of these beings as existing in other dimensions. They may take the form of archangels, animal spirits, ascended masters such as Christ, whatever.
 When you face a decision, ask for help from these inner sources, whatever they may be.
-Usually I get a feeling about which choice seems better. If I don't get a feeling, I continue to let the question remain sort of in the air. I decide not to decide. And then later, some guidance may emerge.
-To improve your access to inner guidance, practice with small decisions, like whether to walk one route or the other. Ask the question and listen inside for some slight emotion, dread or joy or whatever it is. If the response is just silence, no answer, then you know either choice will turn out about the same. There are no serious consequences.
+
+To receive inner guidance, begin with small decisions, like what to do during some free time. Ask about a certain option and listen inside for some slight emotion, dread or joy or whatever it is. Usually I get a feeling about the option or choice. If the response is just silence, no answer, then probably either choice will turn out about the same. There are no important consequences. If I don't get a feeling, I continue to let the question remain sort of in the air. I decide not to decide. And then later, some guidance may emerge. You may think of it as listening for God's will about a situation.
 
 After awhile you will gain confidence in your inner guidance. This technique will also increase your overall ability to detect vibrations in a wide range of situations.
 
@@ -132,7 +133,8 @@ Maybe you go alone to sacred sites and dance all night.
 Maybe you gain strength by reciting verses from the Bible while listening to classic rock.
 Maybe you like giving coffee and cookies to the homeless people.
 Maybe you find power while meditating in a cave or while standing on a rocky beach on a stormy night. Or a church, or other power spot that calls to you.
-Invent your own methods. There are no rules. When you search for Truth, Truth itself will assist you.
+Invent your own methods. There are no rules.
+When you search for Truth, Truth itself will assist you.
 
 Notice when your will power and motivation are strong and use those moments to best advantage.
 
@@ -140,21 +142,19 @@ The best catalyst for spiritual power is to spend time with a God-realized perso
 
 ### Let go of anger
 
-Engaging in verbal violence is equally as harmful as physical violence. Do not respond to anger with anger. Don't get into the cycle of destructive words and behavior. Make a resolution to avoid expressing anger. Regardless of the situation, know that it's possible to maintain your love and self-esteem.
+Engaging in verbal violence is equally as harmful as physical violence. Do not respond to anger with anger. Don't get into the cycle of destructive words and behavior. When you lash out with angry words or violence, you damage the mental atmosphere of yourself and the world. Anger and violence are like a sword that is sharp on both ends. It damages both the attacked and the attacker. It creates misery and distorts your perception. It's not effective for dealing with difficult people. It has no benefits.
 
-When negative emotions start to overpower you, don't go there. Let go of them as quickly as possible. Immediately relax and generate loving thoughts. When someone is angry, think of them as a child of God who is doing the best they can.
-
-When you lash out with angry words or violence, you damage the mental atmosphere of yourself and the world. Anger and violence are like a sword that is sharp on both ends. It damages both the attacked and the attacker. It creates misery and distorts your perception. It's not effective for dealing with difficult people. It has no benefits.
+Make a resolution to avoid expressing anger. When negative emotions start to overpower you, don't go there. Let go as quickly as possible. Immediately relax and generate loving thoughts. When someone is angry, think of them as a child of God who is doing the best they can. Regardless of the situation, know that it's possible to maintain your love and self-esteem.
 
 ### Multi-processing
 
 In emotionally-charged conversations in a work environment, there are often two important components of the interaction:
 •	Factual content, the issue we are dealing with, such as, "Your report was late."
 •	Emotional content, often implied, such as, "Your report was late because you are spaced out."
-Both of these are problems that need to be addressed, not just one, both. The fact that the report was late is something to talk about and fix. But that conversation will be more effective if there is an atmosphere of mutual love and respect. So the emotional content tends to be a long term problem. Sometimes there is not time to address the emotional content until later. Even so, it's most important is to reconcile the feelings and concerns of everyone.
+Both of these are problems that need to be addressed, not just one, both. The fact that the report was late is something to talk about and fix. But that conversation will be more effective if there is an atmosphere of mutual love and respect. So the emotional content tends to be a bigger problem in the long term. Sometimes there is not time to address the emotional content until later. Even so, it's most important is to reconcile the feelings and concerns of everyone. Sooner is better.
 Here's an example of how you might might begin this conversation, "Maybe we should talk about the issues that cause this problem so that we can do better. Maybe later today?"
 
-When talking about the problem, hopefully in a relaxed environment, just tell the truth. Don't try to defend yourself or win the argument. Try to avoid blaming someone or making them wrong. You can say "When [specific thing] happened, I felt [some emotion]." It's all about honest dialogue in an atmosphere of acceptance. A kind and loving attitude is crucial.
+When talking about the problem, hopefully in a relaxed environment, just tell the truth. Try to learn from the situation. What can you do differently to be the best person you can be? Don't try to defend yourself or win the argument. Try to avoid blaming someone or making them wrong. Focus on the indisputable facts. Also you can say "When [specific thing] happened, I felt [some emotion]." But without blaming them, it's just a fact, I had a feeling and a reaction. It's all about honest dialogue in an atmosphere of acceptance. A kind and loving attitude is crucial.
 
 Do your best to maintain a positive relationship with everyone involved. Never buy into anyone's attempt to put you down. You are God's innocent child.
 
@@ -219,7 +219,7 @@ Furthermore our thoughts are interconnected and contribute to the mental atmosph
 
 ### It's all temporary
 
-Everything in this world belongs to God only, and there is nothing here that we can truly call our own. We come with nothing and we leave with nothing. This life will be over in a short time. 
+Everything in this world belongs to God only, and there is nothing here that we can truly call our own. We come with nothing and we leave with nothing. This life will be over in a short time.
 
 What are doing here? Are we supposed to learn something here?
 
@@ -239,13 +239,14 @@ This action in this moment may be your last act, your last stand on earth. Give 
 
 Give excess wealth to the poor. But don't create a new ego identity as a noble person who serves the poor. Don't tell anyone. Let it be a secret between you and God.
 Have faith that the universe is taking care of you. Consider how much money and resources you really need. When self-centered desires arise, let them go as much as possible. At least aspire to be less selfish sometime in the future.
-Anyway the search for personal security isn't going to work in the long run. The body can't be made secure. Ask yourself, "Is saving money for my imaginary future more important than helping people who are suffering now?" Purge yourself of unnecessary things. Consider getting rid of possessions that you are most attached to. Nobody said being free would be easy.
+Anyway the search for personal security isn't going to work in the long run. The body can't be made secure. Ask yourself, "Is saving money for my imaginary future more important than helping people who are suffering now?" Purge yourself of unnecessary things. Consider getting rid of possessions that you are most attached to. Nobody said that freedom is easy.
 
 ### Accept everything with gratitude
 
-It is the nature of life to have many problems. So relax. Don't worry. Confront your problems while remaining peaceful inside. Always be enthusiastic.
-When difficulties come, remind yourself, "God gave me this experience, and so it must be bringing me closer to him. Now I am fulfilling some difficult karma. So that's good. It's paid off!"
-Be optimistic even when facing your death. The invisible forces of the universe will assist you.
+It is the nature of life to have many problems. So relax. Don't worry. Confront your problems while remaining peaceful inside.
+
+When difficulties come, remind yourself, "God gave me this experience, and so it must be bringing me closer to God. Now I am fulfilling some difficult karma. So that's good. That much more is paid off!"
+Always be enthusiastic and optimistic, even when facing death.
 
 ### Sorrow is the ultimate catalyst
 
@@ -267,21 +268,21 @@ Develop sustainable skills for producing food and other necessities. Increase th
 
 We need both love and science. Science gives us enormous power. But love is more important because without love we will misuse power.
 
-We need political action to protect the earth, especially large-scale civil disobedience. Stand up for what is right and God will give you courage. Join forces with those who are building a better world for our children. 
+We need political action to protect the earth, especially large-scale civil disobedience. Stand up for what is right and God will give you courage. Join forces with those who are building a better world for our children.
 
-Accept the present situation however pleasant or difficult, with a can-do attitude. Move forward with love and enthusiasm. Whatever action you do may not turn out as expected. It may have the opposite effect from what was intended. That's not in our control. But we do have control over our intentions: we can try our best to serve the world. Anyone is capable of making a positive contribution, even a smile is enough.
+Accept the present situation however pleasant or difficult, with a can-do attitude. Move forward with love and enthusiasm. Your actions may not turn out as intended. It may have the opposite effect. That's not in our control. But we do have control over our intentions: we can try our best to serve the world. Anyone is capable of making a positive contribution, even a smile is enough.
 
 ### Identify core challenges
 
 What are the crucial challenges you face? What issues make you unhappy, tense, upset, or worried? Identify them specifically. How can you confront these challenges head-on?
 
-Believe in your ability to meet these challenges. How would you proceed toward your goals if you knew you could not fail? 
+Believe in your ability to meet these challenges. How would you proceed toward your goals if you knew you could not fail?
 
 ### Divine grace
 
-Any task requires two factors to succeed: grace and personal effort. Only through grace can anyone escape the illusions and social traps of human existence. The grace of God comes for no reason, it cannot be earned. To know and experience divine grace, with it's unearthly love and intimacy, is perhaps the most sublime of human experiences.
+Any task requires two factors to succeed: grace and personal effort. Only through grace can anyone escape the illusions and social traps of human existence. There is no path to God's grace. It comes for no reason, it cannot be earned. You can only love the Supreme with all your heart. That in itself is grace.
 
-There is no path to grace. You can only love the Supreme with all your heart. That in itself is grace.
+To know and experience divine grace, with it's unearthly love and intimacy, is perhaps the most sublime of human experiences.
 
 ### What is a spiritual warrior?
 
@@ -290,7 +291,7 @@ And that everything is screwed up and broken.
 And is okay with that.
 And is not okay with that.
 
-The spiritual warrior knows unshakeable peace. That "myself" doesn't exist and "others" also don't exist. There is nothing to seek and nothing to find. There is no enemy to fight against and defeat. There is only the nectarous peace beyond understanding
+The spiritual warrior knows unshakeable peace. That "myself" doesn't exist and "others" also don't exist. There is nothing to seek and nothing to find. There is no enemy to fight against and defeat. There is only the nectarous love beyond understanding
 
 Meanwhile in the physical world, the warrior fights with all strength and determination to confront the adversaries and battles of this world, most especially self-imposed limitations.
 
@@ -304,16 +305,17 @@ Respond compassionately to everyone in the moment.
 Let go of anger, irritation, and judgment.
 Let go of (or otherwise deal with) lust.
 
-### Sources and resources
+### Sources and inspirations
 
 Mata Amritanandamayi Devi, affectionately known as Amma
 The Way of the Warrior: The Warpath of Lujan Matus by Ray R. Stewart
 Alchemystique posts on Path of (Rainbow) Warrior of Passion
-Wynton Marsalis in Jazz, a TV mini-series by Ken Burns, conclusion of Episode 1
+Wynton Marsalis in "Jazz", a TV mini-series by Ken Burns, conclusion of Episode 1
 The Men Who Stare at Goats, film directed by Grant Heslov, based on book by Jon Ronson.
 Carlos Castenada
 Don Miguel Ruiz
 Rumi , Jalal ad-Din Muhammad Rumi, 1207-1273
 Cutting through Spiritual Materialism by Chogyam Trungpa
 Mother Teresa of Calcutta
-Innumerable angelic beings and mountain spirits who are available telepathically in the dreamtime 24/7.
+Nisargadatta Maharaj
+Angelic beings and mountain spirits who are available telepathically in the dreamtime 24/7.
